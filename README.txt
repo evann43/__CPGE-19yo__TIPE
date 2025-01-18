@@ -1,8 +1,6 @@
 [FRENCH ONLY]
 2022 - 19 years old
 
-D'après Wikipédia,
-
 Après deux ans de Classe Préparatoire aux Grandes Écoles (CPGE), le Travail d'Initiative Personnelle Encadré (TIPE) est, dans la continuité des Travaux Personnels Encadrés (TPE) au lycée, un premier pas dans le monde de la recherche et la découverte pour les taupins de la démarche scientifique. Il s'agit d'une épreuve commune et obligatoire pour les concours d'entrée aux grandes écoles scientifiques.
 Ce travail doit être réalisé durant les deux années de CPGE, et donne lieu à une présentation devant un jury d'expert.
 
